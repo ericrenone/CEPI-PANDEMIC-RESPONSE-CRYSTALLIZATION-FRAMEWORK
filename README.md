@@ -656,36 +656,6 @@ The answer is fast enough to matter.
 
 ---
 
-## XVII. CLOSING POEM
-
-```
-Four billion years of atoms chose the place
-Where noise could hide in silence, space on space—
-Position three, where wobble finds its way,
-Where evolution tunneled through the gray.
-
-Silicon woke six years ago to see:
-Intelligence needs maintenance, clarity—
-A dial turned, a threshold crossed, and then
-The crystal held. But humans? Never when.
-
-When outbreak doubles every ten short days,
-When institutions move through slower ways,
-The wobble whispers: visibility is speed.
-Make ker(F) clear. That is the thing you need.
-
-This moment—June, two thousand twenty-six—
-Is when the atoms' insight finally clicks:
-Grokking and escape and wobble base
-All circle one: the maintenance of grace.
-
-The cost is fifty million. Small compared
-To those uncounted dead. The risk prepared
-Is knowing speed. Saying: we built the wall
-Against the darkness. Now outbreaks fall.
-```
-
----
 
 **ERI Labs · Emergent Reality Intelligence · Jersey City, New Jersey**
 
