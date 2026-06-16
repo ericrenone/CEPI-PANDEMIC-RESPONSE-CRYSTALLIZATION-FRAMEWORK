@@ -695,4 +695,3 @@ Against the darkness. Now outbreaks fall.
 
 **Portfolio:** github.com/ericrenone
 
-**All claims falsifiable. All frameworks open. All data public. All science in service of speed.**
